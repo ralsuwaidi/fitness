@@ -1,0 +1,3 @@
+When time won't permit my regular gym time as a result of school or work, I start to get a little bummed out and want to sleep more if I haven't worked out in about a week. I was just wondering if this happened to anyone else. I realize that my body is used to the rush of feel good chemicals associated with physical activity, just curious if anyone else gets the "mully grubs" like I do.
+
+Edit: just got back from shadowing and saw so many replies! Thanks everyone for joining the conversation. I hope everyone has a swell rest of the day and is so beefy with muscle 

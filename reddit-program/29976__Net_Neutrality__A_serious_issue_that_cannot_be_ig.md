@@ -1,0 +1,19 @@
+Hello everyone.
+
+On r/Fitness, our policy is to keep it a haven from anything that even smells of politics and focusing the content on fitness. This post does not represent a change in that policy, but rather that we feel the issue of Net Neutrality is so incredibly important to our community and to the world of fitness that we are willing to make an exception to something we have historically been extremely strict and uncompromising about.
+
+Consider some of the popular and highly regarded sources of fitness information that we have today. People like (in no particular order): Greg Nuckols, Alan Thrall, Mark Rippetoe, Jeff Cavaliere/Athlean-X, Cody LeFever/GZCL, our own u/MythicalStrength, Omar Isuf, Mark Bell, Jam Wandler, Brian Alsruhe, Jonnie Candito, Layne Norton, Chris Duffin, Ben Pollack, Megsquats, Eric Cressey, Brad Schoenfeld, Mike Israetel, Bradley Martin, Chad Wesley Smith, Joe DeFranco, Marisa Inda, Janae Marie Kroc. Websites like Strength and Conditioning Research, Examine, Juggernaut Training Systems, EliteFTS, Rogue, Muscle and Strength, BodyBuilding.com, T-Nation, Body Recomposition, Keto Gains, MyFitnessPal, Sci-Fit, Starting Strongman, ExRx, and all the disparate fitness sub-Reddits.
+
+Now imagine a world where the telecom company that owns your ISP has seen that there's money to be made if they jump into the fitness market, and they've decided to launch their own Daily Workouts service, so they throttle or block your internet traffic when you go to watch some of the most popular fitness channels on YouTube, and *there is nothing you can do about it*. What they are doing has been made completely legal. You cannot speak with your money because you have either no other choices in ISP in your region, significantly worse choices in service, or your other choices are owned by a *different* telecom juggernaut that is doing exactly the same thing.
+
+Imagine a world where Greg Nuckols can be legally forced to pay Comcast so that their customers can access StrengTheory unimpeded, and so he must either start charging, run intrusive ads, or shut down. Replace "Greg Nuckols" with anyone you care to name.
+
+Think that can't happen? [They've already tried. Repeatedly.](http://archive.is/y8e4H) The only thing that stopped them was the FCC - The same FCC whose chairman now wants to dismantle everything that stopped them from becoming this generation's Robber Barons.
+
+The Internet facilitates the exchange of information between individuals in a way that has revolutionized fitness. It has provided athletes and coaches with a platform to connect with and share high quality training methodology with more people than ever in history. It has lowered the barrier to finding  training and nutrition information. It has helped uncountable numbers of fitness enthusiasts of all levels of experience to learn how to achieve their goals. It has lowered the financial barrier to pursuing fitness by spreading information that dispels myths about snake oil supplements, over-marketed fitness programs, and unethical industry practices. Though there is a dark side to that coin as well, the list of positives and benefits is enormous and their value cannot be overstated.
+
+It is because of the importance of Net Neutrality to the entire world of fitness that we are making an exception to our normal practices for this post. Everything that can be done to protect Net Neutrality **must** be done.
+
+**We strongly urge everyone within the sound of our voice to contact their Congressmen and Congresswomen to tell them of the importance of Net Neutrality.** The internet is famous in recent years for "slacktivism", but this issue is too important to simply share things on social media. I, personally, have already called my representatives and will be hand writing letters to everyone who is relevant later today.
+
+This website is currently making the rounds and will help you take what action you can: www.battleforthenet.com

@@ -1,0 +1,6 @@
+http://examine.com/blog/really-low-fat-vs-somewhat-lower-carb/?utm_source=Examine.com+Insiders&utm_campaign=40d5e9d05d-Lower_cab_vs_low_fat8_17_2015&utm_medium=email&utm_term=0_e4d662cb1b-40d5e9d05d-70208569&goal=0_e4d662cb1b-40d5e9d05d-70208569&mc_cid=40d5e9d05d&mc_eid=368fcc0a19
+
+Their summary:
+>As usual, don’t bother with media headlines -- this study is NOT a blow to low-carb dieting, which can be quite effective due to factors such as typically higher protein and more limited junk food options. Rather, this study shows that a low-carb diet isn’t necessary for fat loss and that lowering carbs and insulin doesn’t provide a magical metabolic advantage. 
+ It bears repeating: if you even try to apply this study to the real world of dieting choices, you will be frowned upon strongly. Even the lead author writes:
+> If you need a broad and simple takeaway from this study, here is one: weight loss does not rely on certain carb levels or manipulation of insulin, it relies on eating less. Don’t be scared that eating carbs will cause insulin to trap fat inside your fat cells. 
